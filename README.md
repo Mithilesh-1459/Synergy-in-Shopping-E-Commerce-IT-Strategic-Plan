@@ -1,0 +1,1 @@
+# Synergy-in-Shopping-E-Commerce-IT-Strategic-Plan
